@@ -15,7 +15,7 @@
 
 
 #Discord support open source
-[DISCORD)(https://discord.gg/cwDcmj5Etb)
+[DISCORD](https://discord.gg/cwDcmj5Etb)
 
 # CE CODE A ETE PRIS POUR BUT DE VOUS LE PARTAGER A UNCUN MOMENT JE VOUS SURPREND A TE VENDRE
 
